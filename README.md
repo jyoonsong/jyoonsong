@@ -1,1 +1,1 @@
-### 👋 i am [jaeyoon](https://jaeyoon.io)
+### 👋 Hi, I am [Jaeyoon](https://jaeyoon.io) and I do research on human-AI interaction
